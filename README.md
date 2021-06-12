@@ -1,6 +1,6 @@
 # halo-dunia
-Get in touch with GitHub Classroom
+untuk menghubungi saya, dapat dilakukan dengan :
 
-Silahkan diubah halaman ini untuk menjelaskan sedikit tentang siapa Anda.
-
-As more informative this page is, as better score you will get.
+email : vania.h.p@mail.ugm.ac.id
+instagram : @vaniahp_
+linkedin : https://www.linkedin.com/in/vania-hadi-putri-95b929212
